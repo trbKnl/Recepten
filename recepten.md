@@ -84,9 +84,21 @@ voeg paprika toe, bak evt mee. Voeg de rest toe.
 - Cherry Tomaten
 - Komkommer
 - Paprika
-- geroosterde amandelen
+- Geroosterde amandelen
 
 
+### Brocoli courgette soep
 
+- 1 rode ui
+- 1 courgette
+- 500 g broccoli
+- 2 el milde olijfolie
+- 750 ml kraanwater
+- 2 tuinkruidenbouillontabletten
+
+
+1. Snipper de ui. Snijd de courgette in blokjes. Snijd de broccoli in roosjes, schil de steel en snijd in plakjes.
+2. Verhit de olie in een soeppan en fruit de ui 3 min. op laag vuur. Voeg de courgette toe en bak 5 min. mee. Voeg de broccoli, water en de bouillontabletten toe. Breng aan de kook, zet het vuur laag en laat 8 min. zacht koken.
+3. Pureer de soep met de staafmixer. Breng op smaak met peper en eventueel zout.
 
 
