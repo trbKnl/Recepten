@@ -117,5 +117,29 @@ voeg paprika toe, bak evt mee. Voeg de rest toe.
 - teaspoon pepper
 
 
+### Bolognesesaus
+
+-    300 gram gehakt
+-    1 ui
+-    2 tenen knoflook
+-    1 wortel
+-    1 stengel bleekselderij
+-    1 laurierblaadje
+-    70 gr tomatenpuree
+-    400 gram tomatenblokjes
+-    250 ml runderbouillon
+-    snufje zout
+-    snufje zwarte peper
+-    2 theelepels tijm
+-    2 theelepels Italiaanse kruiden
+-    2 theelepels paprikapoeder
+-    2 theelepels gedroogde basilicum
+
+Snij je ui, knoflook, wortel en bleekselderij fijn (je kunt dit ook even met een keukenmachine doen). Giet een scheutje olie in een pan en bak de ui, knoflook, wortel en bleekselderij een paar minuten aan.
+
+Voeg je gehakt toe en bak rul. Voeg je kruiden toe en breng op smaak met zout en peper.
+
+Voeg je tomatenpuree en tomatenblokjes toe. Voeg om het zure uit de tomaat te halen een lepeltje suiker toe. Voeg je laurierblaadje en bouillon toe aan het geheel. Laat de bolognesesaus nu zo lang mogelijk, het liefst een uur of 2, door pruttelen.
+
 
 
