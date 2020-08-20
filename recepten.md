@@ -102,21 +102,6 @@ voeg paprika toe, bak evt mee. Voeg de rest toe.
 3. Pureer de soep met de staafmixer. Breng op smaak met peper en eventueel zout.
 
 
-### Drie bonen salade
-
-- red onion
-- large english cucumber
-- cup fresh parsley
-- chickpeas 125g
-- kidney bean 125g
-- cannellini bean 125g
-- cup olive oil (60 mL)
-- cup red wine vinegar (60 mL)
-- teaspoon dried oregano
-- teaspoon salt
-- teaspoon pepper
-
-
 ### Bolognesesaus
 
 -    300 gram gehakt
