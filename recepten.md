@@ -141,29 +141,6 @@ Voeg je gehakt toe en bak rul. Voeg je kruiden toe en breng op smaak met zout en
 
 Voeg je tomatenpuree en tomatenblokjes toe. Voeg om het zure uit de tomaat te halen een lepeltje suiker toe. Voeg je laurierblaadje en bouillon toe aan het geheel. Laat de bolognesesaus nu zo lang mogelijk, het liefst een uur of 2, door pruttelen.
 
-### Quinoa salade
-
-Ingredients
-
--    180 grams quinoa
--    1 vegetable bouillon cube or 1 tbsp veggiepowdermix, optional 
--    1 cucumber
--    200 grams cherry tomatoes
--    1 avocado
--    4 tablespoons olives, unpitted
--    1 small red onion
--    150 grams feta
--    3 tablespoons cilantro (or parsley), finely chopped
--    Seasalt and black pepper, to taste
--    1 large handful arugula/rocket 
-
-Dressing 
--   2 el mayonnaise
--   2 el olive oil 
--   2 teaspoon lemon juice 
--   1 teaspoon maple syrup 
--   2 tsp mustard 
-
 ### Pasta puttanesca
 
 * 500 g spaghetti
