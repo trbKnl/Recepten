@@ -161,11 +161,11 @@ Voeg je tomatenpuree en tomatenblokjes toe. Voeg om het zure uit de tomaat te ha
 * 400 g gesneden spitskool
 
 
-- Snipper de uien zeer fijn. 
-Snijd de appels in blokjes 0.5 cm^3
+1. Snipper de uien zeer fijn. 
+Snijd de appels in blokjes 0.5 $cm^3$
 Laat de tonijn uitlekken in een zeef en doe in een kom. Meng de tonijn met de ui, de helft van de mayonaise en de helft van de appel. Breng op smaak met peper.
 
-- Verdeel de kaas en het tonijnappelmengsel over de wraps. Vouw de onder- en bovenkant van de wraps iets over de vulling en rol de wraps zo strak mogelijk op. Gril de wraps in de grillpan 5 min. 
+2. Verdeel de kaas en het tonijnappelmengsel over de wraps. Vouw de onder- en bovenkant van de wraps iets over de vulling en rol de wraps zo strak mogelijk op. Gril de wraps in de grillpan 5 min. 
 
-- Meng ondertussen de rest van de mayonaise met de azijn en breng op smaak met peper en eventueel zout. Snijd de peterselie fijn en meng met de rest van de appel, de spitskool en dressing. 
+3. Meng ondertussen de rest van de mayonaise met de azijn en breng op smaak met peper en eventueel zout. Snijd de peterselie fijn en meng met de rest van de appel, de spitskool en dressing. 
 
