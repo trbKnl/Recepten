@@ -148,3 +148,24 @@ Voeg je tomatenpuree en tomatenblokjes toe. Voeg om het zure uit de tomaat te ha
 
 
 
+### Tonijn wrap + salade
+
+* 2 rode uien
+* 2 Granny Smith appels
+* 2 blikken tonijn in zonnebloemolie (à 160 g)
+* 6 el mayonaise
+* 100 g geraspte Goudse oude kaas 48+
+* 8 meergranenwraps
+* ½ el witte wijnazijn
+* 15 g verse peterselie
+* 400 g gesneden spitskool
+
+
+- Snipper de uien zeer fijn. 
+Snijd de appels in blokjes 0.5 cm^3
+Laat de tonijn uitlekken in een zeef en doe in een kom. Meng de tonijn met de ui, de helft van de mayonaise en de helft van de appel. Breng op smaak met peper.
+
+- Verdeel de kaas en het tonijnappelmengsel over de wraps. Vouw de onder- en bovenkant van de wraps iets over de vulling en rol de wraps zo strak mogelijk op. Gril de wraps in de grillpan 5 min. 
+
+- Meng ondertussen de rest van de mayonaise met de azijn en breng op smaak met peper en eventueel zout. Snijd de peterselie fijn en meng met de rest van de appel, de spitskool en dressing. 
+
