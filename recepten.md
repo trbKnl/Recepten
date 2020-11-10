@@ -169,3 +169,28 @@ Laat de tonijn uitlekken in een zeef en doe in een kom. Meng de tonijn met de ui
 
 3. Meng ondertussen de rest van de mayonaise met de azijn en breng op smaak met peper en eventueel zout. Snijd de peterselie fijn en meng met de rest van de appel, de spitskool en dressing. 
 
+
+### Shakshuka 
+- Aubergine
+- Spinazie
+- Paprika rood + groen
+- Ui
+- Knoflook
+- 400g tomatenblokjes
+- Tomatenpuree blikje
+- 4 eieren
+- Feta
+- Komijn
+- Koriander
+- Paprikapoeder
+- Chilipoeder
+- Cayennepeper
+
+1. Ui, knoflook, paprika, aubergine met zout bakken. 
+
+2. Even bakken met puree erbij, dan tomatenblokjes erbij. Veel komijn toevoegen + theelepel: koriander, paprikapoeder, beetje chili en cayennepeper, even stoven. 
+
+3. voeg spinazie toe. Kuiltjes maken, ei erin, peper + zout erover, koken tot ei net gaar. feta erover brokkelen.
+
+
+
