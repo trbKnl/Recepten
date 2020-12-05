@@ -1,36 +1,3 @@
-### Bonen salade met tonijn
-
-2 personen 0-15 minuten hoofdgerecht 
-
-Ingrediënten
-
--    1 kleine pot of blikje witte bonen
--    1 blikje kidneybonen
--    0.5 (rode) ui
--    3 takjes peterselie
--    1 eetlepel citroensap
--    2 eetlepels olijfolie
--    1 theelepel mosterd
--    1 theelepel Italiaanse keukenkruiden
--    peper
--    0.5 komkommer
--    3 tomaten
--    5 olijven zonder pit
--    1 blikje tonijn op water (naturel)
-
-Bereiding:
-Laat de bonen uitlekken en spoel ze af.
-Snijd de ui heel fijn.
-Was de peterselie en knip het kruid klein.
-Maak een dressing van het citroensap, 1 eetlepel water, de olijfolie, de mosterd, de keukenkruiden en peper.
-Schep de dressing, de ui en de peterselie door de bonen. Laat dit op een koele plaats intrekken.
-Was de komkommer en snijd hem in kleine blokjes.
-Was de tomaten en snijd ze in parten.
-Snijd de olijven in plakjes.
-Laat de tonijn uitlekken en verdeel de vis in stukjes.
-Meng alles door de bonen en voeg eventueel nog wat citroensap en peper toe.
-
-
 ### Kikkererwten Curry
 
 -   3 teentjes knoflook
@@ -171,6 +138,7 @@ Laat de tonijn uitlekken in een zeef en doe in een kom. Meng de tonijn met de ui
 
 
 ### Shakshuka 
+
 - Aubergine
 - Spinazie
 - Paprika rood + groen
