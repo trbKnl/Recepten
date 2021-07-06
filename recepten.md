@@ -160,4 +160,26 @@ Laat de tonijn uitlekken in een zeef en doe in een kom. Meng de tonijn met de ui
 
 3. voeg spinazie toe. Kuiltjes maken, ei erin, peper + zout erover, koken tot ei net gaar. feta erover brokkelen.
 
+### Traybake van kip, paprika, zwarte bonen en chipotle
+
+- 800 g zwarte bonen in blik
+- 1 zak paprikamix
+- 190 g Tasty Tom trostomaat
+- 4 kipdijfilets
+- 100 ml La Morena chipotlesaus
+- 2 el arachideolie
+- 1 limoen
+- 15 g verse koriander
+- 125 g crème fraîche
+- 3 bosuitjes
+
+
+1. Verwarm de oven voor op 200 °C. Doe de bonen in een vergiet, spoel af onder koud stromend water en laat goed uitlekken. Verwijder de steelaanzet en zaadlijsten van de paprika’s en snijd het vruchtvlees in stukken van 2 cm. Halveer de tomaten en kipdijfilets.
+
+2. Schep de bonen, paprika en kip om met ¾ van de chipotlesaus, de olie, peper en eventueel zout. Verdeel over een met bakpapier beklede bakplaat en leg de tomaten ertussen. Bak ca. 30 min. in het midden van de oven.
+
+3. Maak ondertussen de limoensaus. Snijd de koriander fijn. Rasp de groene schil van de limoen en halveer de vrucht. Pers de helft uit en snijd de rest in partjes. Meng het limoenrasp, 1 el limoensap (per 4 personen), de koriander en crème fraîche. Breng op smaak met peper en zout. Snijd de bosui in dunne ringen.
+
+4. Neem de traybake uit de oven en besprenkel met de rest van de chipotlesaus, de helft van de limoensaus en bestrooi met de bosui. Serveer met de limoenpartjes.
+
 
