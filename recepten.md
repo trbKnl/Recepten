@@ -191,11 +191,6 @@ Laat de tonijn uitlekken in een zeef en doe in een kom. Meng de tonijn met de ui
 banaan
 peer
 appel
-
 snickersreep
 lionreep
-
-
-
-
-
+frikandel
