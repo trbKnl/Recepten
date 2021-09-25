@@ -182,15 +182,24 @@ Laat de tonijn uitlekken in een zeef en doe in een kom. Meng de tonijn met de ui
 4. Neem de traybake uit de oven en besprenkel met de rest van de chipotlesaus, de helft van de limoensaus en bestrooi met de bosui. Serveer met de limoenpartjes.
 
 
-### Fake recept
+### Pompoennachos
 
-### Fake recept op dev branch
+500 g flespompoen blokjes 
+10 g verse koriander
+1 jalapeñopeper
+1 avocado
+1 limoen
+300 gram gehakt
+115 g La Morena Home Made style Mexican salsa
+zakje taco kruiden
+300 g tortillachips
+150 g geraspte belegen kaas
+125 g crème fraîche
+2 el (zonnebloem)olie
 
-### Fake recept op dev branch 2
+Verwarm de oven voor op 200 °C.  Verdeel pompen over een met bakpapier beklede bakplaat en bestrooi met de kruiden, de olie en zout naar smaak. Bak 25 min. onder in de oven. Schep halverwege om. Doe de tortillachips in een ovenschaal en strooi de geraspte kaas erover. Bak 10 min. op een rooster boven de pompoen. 
 
-banaan
-peer
-appel
-snickersreep
-lionreep
-frikandel
+Snijd ondertussen het steeltje van de jalapeñopeper. Rol de peper tussen je handen zodat de zaadjes eruit vallen. Snijd de peper in dunne ringetjes. Halveer de avocado, verwijder de pit en schep het vruchtvlees met een lepel uit de schil. Snijd het vruchtvlees in blokjes. Halveer de limoen en pers 1 helft uit over de avocado (per 8 personen). Snijd de koriander grof. Schep de pompoen- en avocadoblokjes over de chips in de ingevette ovenschaal. Schep er lepeltjes crème fraîche en Mexican salsa op. Verdeel de jalapeñopeper en koriander erover en serveer.
+
+
+
