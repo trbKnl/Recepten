@@ -184,18 +184,18 @@ Laat de tonijn uitlekken in een zeef en doe in een kom. Meng de tonijn met de ui
 
 ### Pompoennachos
 
-500 g flespompoen blokjes 
-10 g verse koriander
-1 jalapeñopeper
-1 avocado
-1 limoen
-300 gram gehakt
-115 g La Morena Home Made style Mexican salsa
-zakje taco kruiden
-300 g tortillachips
-150 g geraspte belegen kaas
-125 g crème fraîche
-2 el (zonnebloem)olie
+- 500 g flespompoen blokjes 
+- 10 g verse koriander
+- 1 jalapeñopeper
+- 1 avocado
+- 1 limoen
+- 300 gram gehakt
+- 115 g La Morena Home Made style Mexican salsa
+- zakje taco kruiden
+- 300 g tortillachips
+- 150 g geraspte belegen kaas
+- 125 g crème fraîche
+- 2 el (zonnebloem)olie
 
 Verwarm de oven voor op 200 °C.  Verdeel pompen over een met bakpapier beklede bakplaat en bestrooi met de kruiden, de olie en zout naar smaak. Bak 25 min. onder in de oven. Schep halverwege om. Doe de tortillachips in een ovenschaal en strooi de geraspte kaas erover. Bak 10 min. op een rooster boven de pompoen. 
 
