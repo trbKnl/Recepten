@@ -202,4 +202,19 @@ Verwarm de oven voor op 200 °C.  Verdeel pompen over een met bakpapier beklede 
 Snijd ondertussen het steeltje van de jalapeñopeper. Rol de peper tussen je handen zodat de zaadjes eruit vallen. Snijd de peper in dunne ringetjes. Halveer de avocado, verwijder de pit en schep het vruchtvlees met een lepel uit de schil. Snijd het vruchtvlees in blokjes. Halveer de limoen en pers 1 helft uit over de avocado (per 8 personen). Snijd de koriander grof. Schep de pompoen- en avocadoblokjes over de chips in de ingevette ovenschaal. Schep er lepeltjes crème fraîche en Mexican salsa op. Verdeel de jalapeñopeper en koriander erover en serveer.
 
 
+### Linzensalade met warmgerookte zalm en mosterd
 
+- 1 rode ui
+- 800 g linzen in blik
+- 200 g verse spinazie
+- 2 puntpaprika
+- 10 g verse dille
+- kappertjes
+- 125 g warmgerookte zalmfilet
+- 1 el Maille dijonmosterd originale knijpfles
+- 1 el extra vierge olijfolie
+
+
+1. Snijd de ui in flinterdunne halve ringen. Giet de linzen af en spoel onder koud stromend water. Snijd de spinazie grof, de paprika in dunne ringen en de dille fijn.
+2. Laat de kappertjes uitlekken en vang 1 el (per 4 personen) van het vocht op. Meng de linzen met de ui, spinazie, paprika, dille en kapperappeltjes. Verdeel over een schaal en verdeel de zalmfilet in stukjes erover.
+3. Klop een dressing van het kappertjesvocht, de mosterd en olie. Besprenkel de salade ermee en bestrooi met versgemalen zwarte peper.
