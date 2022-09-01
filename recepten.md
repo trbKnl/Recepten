@@ -240,3 +240,5 @@ Snijd ondertussen het steeltje van de jalapeñopeper. Rol de peper tussen je han
 3. Verdeel de zoete aardappel, courgette, paprika en rode ui over een met bakpapier beklede bakplaat. Besprenkel met de rest van de olie, bestrooi met peper en zout. Verdeel de gemarineerde kip en olijven erover. Bak ca. 25 min. in de oven tot de kip gaar is en de groenten knapperig zijn. Haal de blaadjes van de takjes munt.
 4. Haal de plaat uit de oven. Verkruimelde witte kaas erover en verdeel de muntblaadjes erover.
 
+
+
